@@ -34,6 +34,30 @@
 
 **الصوت يبقى بالإنجليزية** — الترجمة للنصوص فقط.
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+<img width="1920" height="1080" alt="골목길   9_24_2026 8_19_04 AM" src="https://github.com/user-attachments/assets/c59c6846-f9c0-4283-a479-e4dc18849bc7" />
+<img width="1920" height="1080" alt="골목길   9_24_2026 8_16_48 AM" src="https://github.com/user-attachments/assets/60cf6c0c-b23d-4fc2-8cf2-48125f31fd28" />
+<img width="1920" height="1080" alt="골목길   9_24_2026 8_15_57 AM" src="https://github.com/user-attachments/assets/7ceb9d32-3861-429e-822a-aba8e12e31e4" />
+<img width="1920" height="1080" alt="골목길   9_24_2026 8_15_41 AM" src="https://github.com/user-attachments/assets/983ef493-2241-46ba-b41d-7e9a6f6490bf" />
+<img width="1920" height="1080" alt="골목길   9_24_2026 8_22_03 AM" src="https://github.com/user-attachments/assets/9f7a980e-38f4-435c-8f85-63e0f647d8af" />
+<img width="1920" height="1080" alt="골목길   9_24_2026 8_19_40 AM" src="https://github.com/user-attachments/assets/1147ac1d-be19-441a-8c3e-07b5a70f3426" />
+
 ---
 
 ## ما الذي تحتاجه قبل البدء
